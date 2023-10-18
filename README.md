@@ -1,0 +1,2 @@
+# Proyecto_parcial
+PARCIAL ALDAIR LOPEZ PALLARES
